@@ -1,2 +1,1 @@
-# Ched
-I hope you enjoy it :)
+https://mkslg.github.io/Landi-mo-pre-HAHAHAHA/
